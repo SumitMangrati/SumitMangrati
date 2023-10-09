@@ -1,3 +1,5 @@
+https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExOWpkaGNkdmIwNXNhdW9naGR4eDV1dG5wZTU3MTBnbWt0eW1qMGpheiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/M9gbBd9nbDrOTu1Mqx/giphy.gif
+
 # 💫 About Me:
 2nd year student at IIEST Shibpur<br>I’m looking to collaborate on innovative startup ideas
 
