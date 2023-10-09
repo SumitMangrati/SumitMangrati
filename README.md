@@ -8,6 +8,7 @@
 </h1>
 
 # 💫 About Me:
+A developer from India<br>
 2nd year student at IIEST Shibpur<br>I’m looking to collaborate on innovative startup ideas
 
 
